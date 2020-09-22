@@ -1,4 +1,4 @@
 # Metin2-Wheel-Of-Destiny
 **Created by blackdragonx61**
 
-https://youtu.be/4VLRYOanbek
+![](https://media.giphy.com/media/M1eXRZhpBAqRrYa3Cp/giphy.gif)
